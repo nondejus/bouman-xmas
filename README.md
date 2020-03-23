@@ -1,2 +1,0 @@
-# bouman-xmas
-nora virus
